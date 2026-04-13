@@ -34,7 +34,7 @@ I share insights on:
 
 ---
 
-### 🔹 Let’s Connect  
+### 🔹 I can be reached on: 
 - LinkedIn: [https://www.linkedin.com/in/lynne-mutwiri-274b40a5/]    
 
 ---
