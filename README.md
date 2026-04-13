@@ -26,7 +26,7 @@ Beyond technical work, I am working on initiatives aimed at strengthening financ
 
 ---
 
-## ✍️ Writing & Thought Leadership  
+### 🔹 Writing & Thought Leadership  
 I share insights on:
 - [Medium](https://medium.com/@mutwirilynnek) 
 - [Instagram](https://www.instagram.com/thelynnelens/)
@@ -34,7 +34,7 @@ I share insights on:
 
 ---
 
-## 🤝 Let’s Connect  
+### 🔹 Let’s Connect  
 - LinkedIn: [https://www.linkedin.com/in/lynne-mutwiri-274b40a5/]    
 
 ---
